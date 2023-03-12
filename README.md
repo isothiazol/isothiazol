@@ -1,1 +1,1 @@
-i am the coder that uses code to make programs used for upgrading my programming skills.
+I am a programmer using my programming knowledge to create programs mainly used for enchancing my and maybe others programming experience.
